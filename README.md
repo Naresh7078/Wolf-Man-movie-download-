@@ -33,7 +33,8 @@ For an immersive sneak peek, the "Wolf Man movie bollyflix" team has released an
 
 **[Watch the Exclusive Trailer Here](https://filmyzilla1.store/wolf-man-movie-bollyflix/)**
 
-![Wolf Man Official Poster](https://filmyzilla1.store/wolf-man-movie-bollyflix/)
+![Wolf Man Official Poster](![image](https://github.com/user-attachments/assets/7b463623-c46b-446f-bdc2-3976356b968f)
+)
 
 ## Cast and Characters
 
